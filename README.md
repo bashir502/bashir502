@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @M.B.S:)
-- 👀 I’m interested in CANADA:(
+- 👀 I’m interested in poragramer:(
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
